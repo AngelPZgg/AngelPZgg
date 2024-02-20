@@ -1,7 +1,7 @@
 HOLA! mundo! xd
 Sígueme en twitch !!!
 estamos en discord!
-https://discord.gg/6xHvfkTXA
+https://discord.gg/hbnXyCdj5G
 <!---
 [AngelPZgg]https://www.twitch.tv/pz_angelgg
 --->
